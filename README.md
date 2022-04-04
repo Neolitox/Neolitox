@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Neolitox
 - 👀 I’m interested in learning how to read and write code.
 - 🌱 I’m currently learning glossary terms and meanings for code.
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on a multi partner project. Me/W/M in need of 22<F
 - 📫 How to reach me is to be upfront and blunt, positive reinforcement, reassuring, and a can do attitude.
 
 <!---
